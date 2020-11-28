@@ -1,0 +1,1 @@
+toast bread slice, add sauce, add cheese, add toopings if you want to, put bread slice with sauce and cheese and maybe toppings into the microwave until cheese melts, enjoy.
